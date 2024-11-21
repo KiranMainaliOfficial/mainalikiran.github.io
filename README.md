@@ -3,6 +3,6 @@ I am a website designer. Basically I provide different types of tools  that are 
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
-Please don't copy the webpage completely But yo can modify it.
+Please don't copy the webpage completely But yall can modify it.
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
